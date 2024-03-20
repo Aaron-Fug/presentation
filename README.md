@@ -1,1 +1,19 @@
 Aaron F
+Character Name: Ember
+
+Origin Story:
+Ember, born with a gift for fire, accidentally destroyed her village. Ostracized, she wanders, mastering her pyrokinesis.
+
+Abilities:
+
+Pyrokinesis: Control and manipulation of fire.
+Fire Immunity: Unharmed by flames.
+Heat Manipulation: Can create heatwaves or cold.
+Fire Healing: Can heal minor wounds with flames.
+Weaknesses:
+
+Emotional Instability: Powers tied to emotions.
+Limited Range: Effective only at short distances.
+Water Vulnerability: Water weakens or extinguishes flames.
+Guilt and Trauma: Haunted by past mistakes.
+Ember seeks redemption, using her powers to protect others, but struggles with inner demons and control.
